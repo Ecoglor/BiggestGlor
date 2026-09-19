@@ -1,3 +1,8 @@
+# okay
+9/19/26
+
+i think i fixed it
+
 # wuh oh
 9/18/26
 
